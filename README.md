@@ -1,0 +1,2 @@
+# Galaksija
+Časopis Galaksija
